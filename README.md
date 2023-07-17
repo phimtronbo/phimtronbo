@@ -1,16 +1,15 @@
-### Hi there 👋
+### Phim Trọn Bộ
 
-<!--
-**phimtronbo/phimtronbo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Xem Phim Trọn Bộ, Xem Phim Online Hay Nhất
 
-Here are some ideas to get you started:
+Xem Phim Trọn Bộ, Xem Phim Online Hay Nhất, Phim HD, Phim VietSub, Phim Hay, Phim mới nhất
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- SĐT: 09788899966
+
+- Website: https://phimtronbo.com/
+
+https://www.youtube.com/channel/UCAhm46HgztcB19W0v9JUduQ
+
+https://twitter.com/phimtronbo
+
+https://www.pinterest.com/phimtronbo/
